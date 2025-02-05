@@ -6,7 +6,7 @@ Subject to removal upon distribution.
 
 The download link is below:
 
-Dropbox: https://www.dropbox.com/home/United%20States%20VR%20CEOs%2C%20Elected%20Officials%2C%20and%20Market%20Logistics%20Dossier%202019-2025
+Dropbox: https://www.dropbox.com/home/United%20States%20VR%20CEOs%2C%20US%20Government%20Officials%2C%20and%20Market%20Logistics%20Dossier%202019-2025
 
 Google Drive: https://drive.google.com/drive/folders/1sOeNe68vUMRLnFi55f3A85AW2VhTSnnY?usp=share_link
 
