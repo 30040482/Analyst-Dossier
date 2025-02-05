@@ -6,6 +6,6 @@ What you are about to see is real and may be removed upon upload.
 
 The download link is below:
 
-Dropbox: https://www.dropbox.com/scl/fo/i9eqqwsgag91ljpa6f4cg/ACv3Es8PB6WdZ-EZaQwQ5Sc?rlkey=2zwch1iobc6oefq8y6c74570o&st=3tsvqzi7&dl=0
+Dropbox: https://www.dropbox.com/scl/fi/q90mb2o00p21r3mkwuaki/Independent-Analyst-Resume.pdf?rlkey=nbrrg0eeiekmbsk63b2rb7m41&st=r3tv4oft&dl=0
 
 Google Drive: https://drive.google.com/drive/folders/1sOeNe68vUMRLnFi55f3A85AW2VhTSnnY?usp=share_link
