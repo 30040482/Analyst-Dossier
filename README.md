@@ -6,6 +6,6 @@ Subject to removal upon distribution.
 
 The download link is below:
 
-Dropbox: https://www.dropbox.com/scl/fi/q90mb2o00p21r3mkwuaki/Independent-Analyst-Resume.pdf?rlkey=nbrrg0eeiekmbsk63b2rb7m41&st=r3tv4oft&dl=0
+Dropbox: https://www.dropbox.com/home/United%20States%20VR%20CEOs%2C%20Elected%20Officials%2C%20and%20Market%20Logistics%20Dossier%202019-2025
 
 Google Drive: https://drive.google.com/drive/folders/1sOeNe68vUMRLnFi55f3A85AW2VhTSnnY?usp=share_link
