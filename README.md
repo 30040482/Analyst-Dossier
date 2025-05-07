@@ -1,4 +1,4 @@
-_This is the GitHub page I was talking about. Feel free to contact me :)_
+_In case I was too busy serving drinks, feel free to contact me here!_
 
 Google SEO Results: Luis Soberanis Pacheco
 
