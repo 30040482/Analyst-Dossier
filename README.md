@@ -1,6 +1,4 @@
-_Welcome to my GitHub page!_
-
-_Feel free to contact me if you've recieved access to this_
+_Welcome to my GitHub page! Feel free to contact me if you've recieved access to this_
 
 Google SEO Results: Luis Soberanis Pacheco
 
