@@ -4,7 +4,7 @@
 
 [DOB] 05-14-2001 (24 Years Old)
 
-[Address] 1950 Armory Drive
+[Address] 1950 Armory Drive, Santa Rosa CA, 95401
 
 [Contact] 510 328-6906
 
